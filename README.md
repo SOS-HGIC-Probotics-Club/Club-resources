@@ -1,2 +1,2 @@
 # Club-resources
-Upload all the necessary resources and link here
+Upload all the necessary resources and links here
